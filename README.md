@@ -1,5 +1,5 @@
 # my-portfolio
-# Kendon Augare-DEal
+# Kendon Augare-Deal
 
 ### About Me
 My name is Kendon Augare-Deal. I am Native american from the Navajo Nation in New Mexico. I am originally from New Mexico and I moved to Maryland my sophmore year of high school. I like to play basketball and watch movies.
